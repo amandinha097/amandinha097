@@ -1,4 +1,4 @@
-### Hi there 👋
+### prazer meu nome é amanda 👋
 
 <!--
 **amandinha097/amandinha097** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
